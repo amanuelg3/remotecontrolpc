@@ -1,0 +1,1 @@
+Ovladani PC pres windows mobile 6 Profesional. Serverova cast a klientska cast
